@@ -34,9 +34,9 @@ Happy Halloween!
 ---
 
 ### このプレゼン 文字しか
-打ってねぇ！！
+打ってねぇ！！ すげぇ!
 
 ---
 
-## Thank you...
-### Good Night
+### Thank you...
+Good Night
