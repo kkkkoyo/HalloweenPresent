@@ -1,8 +1,7 @@
-# こんにちは！
 
+![Halloween.png](https://images.plurk.com/6rfUUE4OKb6y5xe6uygS.jpg)
 
-これはサンプルのスライド資料です。
-
+Happy Halloween!
 
 ---
 
