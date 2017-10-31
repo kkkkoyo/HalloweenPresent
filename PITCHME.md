@@ -13,9 +13,7 @@ Happy Halloween!
 
 ## I Love 'OTAKU'
 
-<img width="300" alt="Halloween.png" src="https://pbs.twimg.com/media/CfhlWn7VAAIJPiB.jpg">
-
-<img width="500" alt="Halloween.png" src="https://pbs.twimg.com/media/CzwrcT8UQAAVS-t.jpg:large">
+<img width="300" alt="Halloween.png" src="https://pbs.twimg.com/media/CfhlWn7VAAIJPiB.jpg"> <img width="500" alt="Halloween.png" src="https://pbs.twimg.com/media/CzwrcT8UQAAVS-t.jpg:large">
 
 ※画像はM.Bさん(https://twitter.com/yo_draw)
 
