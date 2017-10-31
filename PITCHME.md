@@ -1,4 +1,4 @@
-<img width="300" alt="Halloween.png" src="https://images.plurk.com/6rfUUE4OKb6y5xe6uygS.jpg">
+<img width="350" alt="Halloween.png" src="https://images.plurk.com/6rfUUE4OKb6y5xe6uygS.jpg">
 
 Happy Halloween!
 
