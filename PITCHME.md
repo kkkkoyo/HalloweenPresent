@@ -26,10 +26,15 @@ Happy Halloween!
 ---
 
 ## デート??
-- 秋葉原 |
 - シューティングレンジバー |
 - <img width="300" alt="Halloween.png" src="http://direct.otakei.otakuma.net/wp/wp-content/uploads/2016/05/trigger-happy02-600x338.jpg"> |
 - メイドカフェ |
+- <img width="300" alt="Halloween.png" src="http://rakkami.com/img/scenario/704/DY0DvMKO9R.jpg"> |
+
+---
+
+### このプレゼン 文字しか
+打ってねぇ！！
 
 ---
 
