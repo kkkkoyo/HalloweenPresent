@@ -38,5 +38,5 @@ Happy Halloween!
 
 ---
 
-### See you...
-Good Night
+## Thank you...
+### Good Night
