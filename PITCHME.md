@@ -19,15 +19,19 @@ Happy Halloween!
 
 ---
 
-## 自分と趣味と価値観が合うのがいいな...と
+#### 自分と趣味と価値観が合うのがいいな...と
 - アニメ |
 - 音楽 |
+
+---
 
 ## デート??
 - 秋葉原 |
 - シューティングレンジバー |
 - <img width="300" alt="Halloween.png" src="http://direct.otakei.otakuma.net/wp/wp-content/uploads/2016/05/trigger-happy02-600x338.jpg"> |
 - メイドカフェ |
+
+---
 
 ### See you...
 Good Night
