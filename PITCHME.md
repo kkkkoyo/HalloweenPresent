@@ -1,7 +1,7 @@
 
-Happy Halloween!
+<img width="300" alt="Halloween.png" src="https://images.plurk.com/6rfUUE4OKb6y5xe6uygS.jpg">
 
-- <img width="300" alt="Halloween.png" src="https://images.plurk.com/6rfUUE4OKb6y5xe6uygS.jpg"> |
+Happy Halloween!
 
 ---
 
@@ -11,9 +11,13 @@ Happy Halloween!
 
 ---
 
+## I Love 'OTAKU'
 
-### 3枚目のスライド
+<img width="300" alt="Halloween.png" src="https://pbs.twimg.com/media/CfhlWn7VAAIJPiB.jpg">
 
+<img width="500" alt="Halloween.png" src="https://pbs.twimg.com/media/CzwrcT8UQAAVS-t.jpg:large">
+
+※画像はM.Bさん(https://twitter.com/yo_draw)
 
 ---
 
